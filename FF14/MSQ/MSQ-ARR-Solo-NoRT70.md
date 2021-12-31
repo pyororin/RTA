@@ -1,2 +1,0 @@
-# MSQ ARR Solo NoRT70
-
